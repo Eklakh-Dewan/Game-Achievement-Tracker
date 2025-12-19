@@ -142,9 +142,14 @@ AI Engineer | ML Developer
 - React Native community
 - Expo team for amazing tools
 
----
+
+## OUTPUT
+
+---![Screenshot_2025-12-18-20-51-59-735_host exp exponent](https://github.com/user-attachments/assets/2358c7b1-543c-4271-bfe1-eeada15781d6)
+
 
 **Happy Gaming! 🎮✨**
+
 
 
 
