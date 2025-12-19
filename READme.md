@@ -146,9 +146,19 @@ AI Engineer | ML Developer
 ## OUTPUT
 
 ---![Screenshot_2025-12-18-20-51-59-735_host exp exponent](https://github.com/user-attachments/assets/2358c7b1-543c-4271-bfe1-eeada15781d6)
+![Screenshot_2025-12-18-20-52-10-040_host exp exponent](https://github.com/user-attachments/assets/8ec0b02f-f861-48c9-9cc4-01313640af41)
+
+
+
+![Screenshot_2025-12-18-20-52-15-318_host exp exponent](https://github.com/user-attachments/assets/397551b6-c7ed-4c72-a16d-7a494cb7fef1)
+
+![Screenshot_2025-12-18-20-52-21-242_host exp exponent](https://github.com/user-attachments/assets/de2b46d0-2757-40bc-8767-47a8d736075e)
+![Screenshot_2025-12-18-20-52-25-142_host exp exponent](https://github.com/user-attachments/assets/f0c9c99f-b8e3-4ec9-8339-8f5d686fea8f)
+
 
 
 **Happy Gaming! 🎮✨**
+
 
 
 
